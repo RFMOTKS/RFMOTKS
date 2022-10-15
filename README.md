@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RFMOTKS (Refund Me OTaKu Square)
+- 👀 I’m interested in getting refunds
+- 🌱 I’m currently learning all the possible ways to complain to Otaku Square
+- 💞️ I’m looking to collaborate on getting in contact with a human at Otaku Square
